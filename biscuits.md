@@ -11,7 +11,7 @@
 - 2 cups all-purpose flour
 - 1 tbsp baking powder
 - 1 tsp salt
-- 5 tbsp (1 stick) unsalted butter
+- 8 tbsp (1 stick) unsalted butter
 - 1 cup whole milk
 
 ## Preparation
