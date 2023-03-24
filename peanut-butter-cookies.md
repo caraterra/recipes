@@ -1,7 +1,7 @@
 # Peanut Butter Cookies
 
 - Yield: 32 cookies
-- <https:/sallysbakingaddiction.com/soft-peanut-butter-cookie-recipe/>
+- <https://sallysbakingaddiction.com/soft-peanut-butter-cookie-recipe/>
 
 ## Ingredients
 
